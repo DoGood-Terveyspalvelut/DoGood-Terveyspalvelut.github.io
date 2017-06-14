@@ -1,5 +1,5 @@
 
-Huom: webhotelli-palveluntarjoajallemme on teknisiä ongelmia, josta syystä sähköpostit @dogood.fi osoitteisiin ei toimi.
+Huom: webhotelli-palveluntarjoajallemme on teknisiä ongelmia. Sivustoa ollaan siirtämässä turvallisempaan kotiin. Pahoittelut häiriöstä.
 
 
 # DoGood-Terveyspalvelut
