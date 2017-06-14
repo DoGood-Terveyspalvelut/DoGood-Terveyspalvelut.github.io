@@ -7,6 +7,7 @@ _Huom: webhotelli-palveluntarjoajallemme on teknisiä ongelmia. Sivustoa ollaan 
 
 ### DoGood on vahvaan manuaalisen terapian osaamiseen ja laadukkaaseen jatkokuntoutukseen panostava kuntoutusalan yritys.
 
+---
 
 [**☞ AJANVARAUS VERKOSSA**](https://www.varaaverkossa.fi/places/1401)
 
