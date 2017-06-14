@@ -28,8 +28,8 @@ jutta.aalto@dogood.fi
 niclas@granfelt.com  
 +358 440 228 501
 
-**Ira Rissanen**  
-fysioira@gmail.com
+**Maija Sinisalo**  
+fysioterapeuttimaijasinisalo@gmail.com
 
 
 **Posti- ja käyntiosoite:**  
