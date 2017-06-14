@@ -1,6 +1,6 @@
   
   
-Huom: webhotelli-palveluntarjoajallemme on teknisiä ongelmia. Sivustoa ollaan siirtämässä turvallisempaan kotiin. Pahoittelut häiriöstä.
+_Huom: webhotelli-palveluntarjoajallemme on teknisiä ongelmia. Sivustoa ollaan siirtämässä turvallisempaan kotiin. Pahoittelut häiriöstä._
 
 
 # DoGood-Terveyspalvelut
