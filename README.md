@@ -22,7 +22,7 @@ vesa.valtonen@dogood.fi
 +358 40 5687 938
 
 **Jutta Aalto**  
-jutta.aalto@dogood.fi  
+info@juttaaalto.fi  
 +358 44 0428286
 
 **Niclas Granflet**  
